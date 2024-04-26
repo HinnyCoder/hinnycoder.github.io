@@ -1,3 +1,0 @@
-# We are updating ...
-
-See you soon.
